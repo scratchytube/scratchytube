@@ -7,5 +7,3 @@ I'm a pretty adventureous person so if i'm not coding i'm on my Triumph hitting 
   
 Oh and i love trader joes
 
-bpsahota@gmail.com 
-
